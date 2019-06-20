@@ -15,4 +15,4 @@ Burning Ship - 3:
 ![](https://i.imgur.com/lzzngyW.png)
 
 Bonus ft_seizure:
-![](https://imgur.com/YiNa1vV)
+![](https://i.imgur.com/YiNa1vV.gif)
